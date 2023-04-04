@@ -1,5 +1,5 @@
 Última atualização: 25 de Março de 2023 - 11:41
-Colabore: PayPal/Pix/Contato para sandro.rider@gmail.com
+Colabore: Pix/Contato para emersonciancaglio@gmail.com
 
 Referências com Português:
 https://www.dramaqueengames.com/liceu-da-sabedoria-1 ?(página está desatualzado em 2021 e ultima atualização JSON [lista] em Maio/2022)
